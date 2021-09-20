@@ -31,8 +31,7 @@ Steam: steamcommunity.com/id/cyrlia
 Instagram: instagram.com/cyrlialol  
 
 # Pics
-<img src="https://i.imgur.com/Jd1eDxl.png" width="350">
-<img src="https://i.imgur.com/ZQtkE4Q.png" width="350">  
+<img src="https://i.imgur.com/Jd1eDxl.png" width="350">  
 
 # Relatives
 Katrin Krieger (Mother)  
