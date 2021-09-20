@@ -54,3 +54,8 @@ felix.conrad05@web.de
 +49 15207955278
 
 ### Dennis Eggert
+Oldecopstraße 5
+29410 Salzwedel
+Germany
+
++49 01621821473
