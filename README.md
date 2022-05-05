@@ -1,6 +1,6 @@
 # Personal Information
 Full Name: Delphie Krieger  
-Phone Number: +49 176 57684782  
+Phone Number: +49 176 57687842  
 DOB: 11/11/2004  
 Email: deley.k@gmx.de  
 Picture: https://prnt.sc/1sc1rbb  
